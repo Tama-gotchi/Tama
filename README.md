@@ -20,7 +20,7 @@
 
 <img width="35" height="35" alt="image_2026-07-18_211605420__fliter--green-pink-acid__channel--red__mode--overlay" src="https://github.com/user-attachments/assets/082325a0-cbc9-495f-8178-fa2f4cdb0704" /> ta**ma** *,* e**r**o <img width="55" height="55" alt="image_2026-07-18_211540680__fliter--green-pink-acid__channel--red__mode--overlay" src="https://github.com/user-attachments/assets/fc2616ba-84c2-4c96-b514-759ca33f1710" />
 
-[ʚataɞ](https://atabook.org/control/sitelayout?gb=46423) ~ [name](link) ~ [name](link)
+[ʚataɞ](https://gotcha.atabook.org/) ~ [name](link) ~ [name](link)
 
 <img width="240" height="248" alt="image_2026-07-18_220557058__fliter--green-pink-acid__channel--red__mode--overlay" src="https://github.com/user-attachments/assets/c854ac19-f436-46bc-a5b9-d525a91b4c27" />
 
